@@ -1,4 +1,4 @@
-**Career Mercury** 🌍🚀 
+**Career Mercury** 🌍🚀 <br/>
 Empowering South African Students with Career Insights
 
 About Career Mercury is a platform designed to help South African students make informed career decisions by providing tailored information about university options and the local job market. 
